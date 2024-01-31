@@ -1,2 +1,4 @@
 # PoetryNwisdom
-Poetry On Wisdom
+Poetry On love
+
+A poem on love and romance, a failed romance.
